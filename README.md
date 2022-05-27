@@ -8,3 +8,5 @@
 - 📷 **Instagram:** dripstone_69
 -
 - 🎮 **You can also join [my Discord](https://gameunity.gq/join-us.html)!**
+
+[![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/G2G3BEBL5)
